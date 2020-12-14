@@ -1,2 +1,2 @@
 # hello-world
-My Name is Isihack My favorite sport is Soccer
+Hello Class My name is Isihack also go by Isaac  and my favorite sport is soccer
